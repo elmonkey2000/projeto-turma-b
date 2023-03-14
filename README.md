@@ -2,7 +2,7 @@
 
 ---
 
-Endereço: XXXXXXXXXX XXX XXXXXXX - Marília - SP
+Endereço: Rio Branco - Marília - SP
 
 ---
 
